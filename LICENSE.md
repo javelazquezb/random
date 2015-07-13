@@ -1,0 +1,1 @@
+Con este software puedes hacer lo que quieras.
